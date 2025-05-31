@@ -20,6 +20,8 @@
 
 即时响应：验证码实时推送，确保快速完成注册或验证步骤。
 
+<img src="pic/bbb.png" alt="日本接码平台" border="0">
+
 📌 适用场景：
 
 注册日本平台账户：如日本的电商平台、社交媒体、游戏等。
@@ -27,6 +29,24 @@
 账户验证：进行日本平台的双重认证或密码找回时，提供安全的验证码接收服务。
 
 多账户管理：当需要同时管理多个平台账户时，提供独立的接码服务。
+
+海外耐用账号出售
+https://guojizhanghao.top 
+
+国内各大APP账号出售
+https://quanzhanghao.cc     
+
+全球APP刷粉-涨粉 
+https://zhangfensi.top 
+
+全球手机卡经销商
+https://shimingka.top 
+
+接码：
+https://kuaijiema.top
+
+人工客服：
+https://t.me/hwdb8999
 
 📌 支持的日本平台：
 
